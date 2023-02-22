@@ -1,3 +1,3 @@
 # Corajillo6
 
-José David Padilla Márquez A01746712
+Vamos chavos, este partido se gana.
